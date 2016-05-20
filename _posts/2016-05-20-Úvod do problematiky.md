@@ -7,3 +7,7 @@ Právě především v příhraničních oblastech se rozvinul čilý obchod a s
 Stopy po jejich pobytu lze nalézt na mnohdy nečekaném místě.  
 
 ![Obrazce v obilí](https://nobunaga1234.github.io/images/Pole_římský tábor.jpg)
+
+Zdroje:  
+http://www.rimskelegie.olw.cz/pages/articles/legincz/legincr.html  
+http://21stoleti.cz/2007/02/19/mela-byt-na-morave-rimska-provincie/
